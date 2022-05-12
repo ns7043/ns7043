@@ -1,4 +1,4 @@
-Naoki Shimizu, Ph.D. in Policy Science
+--Naoki Shimizu--, Ph.D. in Policy Science
 
 Associate Professor
 
