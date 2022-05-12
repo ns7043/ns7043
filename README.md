@@ -1,4 +1,11 @@
-### Hi there 👋
+Naoki Shimizu, Ph.D. in Policy Science
+
+Associate Professor
+
+Faculty of Cultural Studies
+
+University of Kochi
+
 
 <!--
 **ns7043/ns7043** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
