@@ -3,9 +3,9 @@ Naoki Shimizu, Ph.D. in Policy Science
 
 Associate Professor
 
-Faculty of Cultural Studies
+School of Policy Studies
 
-University of Kochi
+Chukyo University
 
 
 <!--
